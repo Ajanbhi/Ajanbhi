@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shashwat Verma
 - 👀 I’m interested in coding ,travelling,cars,technology and public dealing.
-- 🌱 I’m currently pursuing BTech-cse from Graphic Era deemed to be university,dehradun
+- 🌱 I’m currently pursuing BTech-cse from Graphic Era deemed to be university,Dehradun
 - 💞️ I’m looking to collaborate on project and freelancing
 
 
